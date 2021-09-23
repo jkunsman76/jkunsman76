@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jkunsman76
-- 👀 I’m interested in rock climbing, cars, and video games
+- 👀 I’m interested in rock climbing, fly fishing, and video games.
 - 🌱 I’m currently learning everything...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me jkoonman@gmail.com
